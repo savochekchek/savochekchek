@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning шмаль
 - 💞️ I’m looking to collaborate on Илон маск
 - 📫 How to reach me ВК:Саша Кот
-- 😄 Pronouns: ...
 - ⚡ Fun fact: я люблю дуть шишки 
 
 <!---
